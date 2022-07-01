@@ -1,2 +1,0 @@
-# Tribute_to_Indian_Army_by_Aditya
-This is repository for Tribute_to_Indian_Army_by_Aditya
